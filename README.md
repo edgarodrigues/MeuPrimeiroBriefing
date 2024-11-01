@@ -2,6 +2,7 @@
 
 Logotipo:
 
+![image](https://github.com/user-attachments/assets/f98866f3-d01e-4fa1-a9aa-58da7f146362)
 
 
 
