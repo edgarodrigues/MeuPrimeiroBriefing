@@ -1,4 +1,4 @@
-# Grow up Suplements
+# Grow up Supplements
 
 Logotipo:
 
